@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Krzesiktokoks
-- 👀 I’m interested in ZSEIL Smoker Club
+- 👀 I’m interested in ZSEIL Smoker's Club
 - 🌱 I’m currently learning M1
 - 💞️ I’m looking to collaborate on ur mom
 - 📫 How to reach dwójke z M1
